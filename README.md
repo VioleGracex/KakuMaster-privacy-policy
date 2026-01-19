@@ -1,0 +1,1 @@
+# KakuMaster-privacy-policy
